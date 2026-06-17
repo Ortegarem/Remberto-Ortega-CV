@@ -36,7 +36,8 @@ https://github.com/Ortegarem/AutomatizacionesIA
 ## Contacto
 
 LinkedIn:
-(Agregar enlace)
+www.linkedin.com/in/rortegapi
 
 GitHub:
 https://github.com/Ortegarem
+
